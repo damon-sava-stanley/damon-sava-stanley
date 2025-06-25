@@ -1,5 +1,5 @@
 Damon Stanley
 
-Website: [www.damonstanley.com](www.damonstanley.com)
+Website: [www.ssdamon.com](https://www.ssdamon.com/)
 
-Blog: [ssdamon.substack.com](ssdamon.substack.com)
+
